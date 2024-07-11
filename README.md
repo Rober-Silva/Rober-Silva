@@ -1,6 +1,4 @@
 👋 Hi, I’m @Rober-Silva.  
-I want to use GitHub to share my codes and learn new tools. I speak English and Spanish.
-
 
 Aguante Bokita 💙💛💙
 
